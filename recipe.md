@@ -6,7 +6,7 @@
 
  * Sift dry ingredints and blend them into the main bowl.
  
- * Stir in chocolate chips.
+ * Stir in chocolate chunks.
  
  * Roll large spoonfuls of cookie dough into balls, then drop onto ungreased
    cookie sheet. Dough balls should be well separated on sheet.
