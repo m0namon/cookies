@@ -2,9 +2,9 @@
 
  * Preheat oven to 375 degrees Farenheit (190 degrees Celsius, 465 Kelvin, 835 Rankin).
 
- * Blend crisco, sugars, eggs, and vanille in a large bowl.
+ * Blend Crisco, sugars, eggs, and vanilla in a large bowl.
 
- * Sift dry ingredints and blend them into the main bowl.
+ * Sift dry ingredients and blend them into the main bowl.
  
  * Stir in chocolate chips.
  
@@ -14,6 +14,6 @@
  * Bake 7-9 minutes, until cookies are slightly darker than raw dough.
  
  * Leave on cookie sheet 5 minutes before transferring to wire cooking rack.
-   Cookies should be soft afer cooling!
+   Cookies should be soft after cooling!
  
  * Store in cookie jar with a slice of plain bread.
