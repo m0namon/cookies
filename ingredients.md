@@ -8,4 +8,4 @@
 - 3/4 cup white sugar
 - 2 eggus
 - 1/2 teaspoon vanilla
-- 6 oz. semi-sweet chocolate chips
+- 6 oz. semi-sweet chocolate chunks
