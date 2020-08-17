@@ -1,6 +1,6 @@
 # Instructions
 
- * Preheat oven to 375 degrees Fahrenhiet.
+ * Preheat oven to 375 degrees Fahrenheit.
 
  * Blend crisco, sugars, eggs, and vanille in a large bowl.
 
