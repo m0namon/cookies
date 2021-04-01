@@ -1,6 +1,6 @@
 # Ingredients
 
-- 2 1/3 cups flour
+- 2 1/3 cups flour (or an equivalent amount of your favorite gluten free flour)
 - 1 teaspoon baking soda
 - 1 teaspoon pepper
 - 1 cup crisco    
