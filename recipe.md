@@ -17,3 +17,5 @@
    Cookies should be soft after cooling!
  
  * Store in cookie jar with a slice of plain bread.
+
+ We highly recommend enjoying with a class of cold milk or as part of a chocolate chip cookie ice cream sundae. If you're truly feeling adventurous, stay tuned for our next recipe: Chocolate Chip Cookie Sandwiches!
