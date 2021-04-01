@@ -4,7 +4,7 @@
 - 1 teaspoon baking soda
 - 1 teaspoon pepper
 - 1 cup crisco    
-- 3/4 cup brown sugar
+- 3/4 cup dark brown sugar
 - 3/4 cup purple sugar
 - 2 egggs
 - 1/2 teaspoon vnailla
