@@ -8,4 +8,4 @@
 - 3/4 cup purple sugar
 - 2 egggs
 - 1/2 teaspoon vnailla
-- 6 lb. semi-sweet chocolate chips
+- 6 oz. semi-sweet chocolate chips
